@@ -1,2 +1,1 @@
-Diaz guzman roni francisco
-2A programacion turno vespertino 
+Diaz guzman roni francisco-2A 
